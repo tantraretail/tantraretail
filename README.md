@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @tantraretail
+- 👀 I’m interested in FInTech
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me admin@tantraretail.com
+
